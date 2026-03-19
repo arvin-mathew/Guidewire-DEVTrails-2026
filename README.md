@@ -99,11 +99,11 @@ Health insurance, instrument damage, and travel coverage are excluded. Kavach co
 
 ## Team
 
-- Khrisha Sreedar
+- S Khrisha
 - Tanishq Ude
-- Sameeksha Kurup
+- Sameeksha Khurpe
 - Arvin Mathew Saj
-- Pranauv Srinath
+- Pranauv Srinaath
 
 ## Submission Links
 
